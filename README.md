@@ -4,6 +4,7 @@
 欢迎使用交流：
 
 安装教程：https://www.daniao.org/13006.html
+https://www.daniao.org/5855.html
 
 博客订阅：https://t.me/rssdaniao
 
